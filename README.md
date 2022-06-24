@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning Data Structures and Web Devlopment.
 - 💞️ I’m looking to collaborate on Open Source Projects.
 - 📫 How to reach me - 
-        Twitter:- https://twitter.com/mandar_umare?t=zyZOy0K-PdEqsEv0TcweIw&s=09
+        Twitter:- https://twitter.com/mandarstwt?t=_FQkfoDr8YIjn3MCxLVscg&s=09
 
         LinkedIn:- https://www.linkedin.com/in/mandar-umare-8b9bb2223
 
